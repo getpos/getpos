@@ -20,6 +20,9 @@ me and my friends having dinner (im the third from the left!!)
 speak to me at zasqm#9905
 ![me4](https://user-images.githubusercontent.com/39038795/164950205-11b1e1d9-3870-4746-a384-e5af1bc41ca7.gif)
 
+![IVNADER](https://user-images.githubusercontent.com/39038795/164950438-ff0973f2-3d87-4934-8403-b4947735cb7a.gif)
+help hwo do i get this guy off my page
+
 <!--
 **getpos/getpos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
