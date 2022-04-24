@@ -1,8 +1,8 @@
 ### greetings!!
 
-![me](https://user-images.githubusercontent.com/39038795/164950027-0a125bc3-68c5-456b-899b-2c53c03b7304.gif)
+![me](https://user-images.githubusercontent.com/39038795/164950306-7a7c4a50-0e06-49b6-9d66-08649ba377aa.gif)
 i make software for earthworms 
-![me](https://user-images.githubusercontent.com/39038795/164950027-0a125bc3-68c5-456b-899b-2c53c03b7304.gif)
+![me](https://user-images.githubusercontent.com/39038795/164950306-7a7c4a50-0e06-49b6-9d66-08649ba377aa.gif)
 
 ![me2](https://user-images.githubusercontent.com/39038795/164950071-75ce530c-63be-4352-8102-3acea522ac10.gif)
 i like the godot game engine and can program python kind of
