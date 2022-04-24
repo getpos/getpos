@@ -8,9 +8,9 @@ i make software for earthworms
 i like the godot game engine and can program python kind of
 ![me2](https://user-images.githubusercontent.com/39038795/164950071-75ce530c-63be-4352-8102-3acea522ac10.gif)
 
-![me3](https://user-images.githubusercontent.com/39038795/164950161-c64a8403-4b41-4eaa-95d1-58306a865e6e.gif)
+![me3](https://user-images.githubusercontent.com/39038795/164950369-cc74cdda-3cc3-44a0-b727-03bda1990662.gif)
 i have a game company that i don't release games for 
-![me3](https://user-images.githubusercontent.com/39038795/164950161-c64a8403-4b41-4eaa-95d1-58306a865e6e.gif)
+![me3](https://user-images.githubusercontent.com/39038795/164950369-cc74cdda-3cc3-44a0-b727-03bda1990662.gif)
 
 ![yahooz](https://user-images.githubusercontent.com/39038795/164949934-b160d170-9724-480f-a0a7-b926fe4abb02.jpg)
 
