@@ -1,16 +1,33 @@
-### Hi there 👋
+### greetings!!
+
+![me](https://user-images.githubusercontent.com/39038795/164950027-0a125bc3-68c5-456b-899b-2c53c03b7304.gif)
+i make software for earthworms 
+![me](https://user-images.githubusercontent.com/39038795/164950027-0a125bc3-68c5-456b-899b-2c53c03b7304.gif)
+
+![me2](https://user-images.githubusercontent.com/39038795/164950071-75ce530c-63be-4352-8102-3acea522ac10.gif)
+i like the godot game engine and can program python kind of
+![me2](https://user-images.githubusercontent.com/39038795/164950071-75ce530c-63be-4352-8102-3acea522ac10.gif)
+
+![me3](https://user-images.githubusercontent.com/39038795/164950161-c64a8403-4b41-4eaa-95d1-58306a865e6e.gif)
+i have a game company that i don't release games for 
+![me3](https://user-images.githubusercontent.com/39038795/164950161-c64a8403-4b41-4eaa-95d1-58306a865e6e.gif)
+
+![yahooz](https://user-images.githubusercontent.com/39038795/164949934-b160d170-9724-480f-a0a7-b926fe4abb02.jpg)
+
+me and my friends having dinner (im the third from the left!!)
+
+![me4](https://user-images.githubusercontent.com/39038795/164950205-11b1e1d9-3870-4746-a384-e5af1bc41ca7.gif)
+speak to me at zasqm#9905
+![me4](https://user-images.githubusercontent.com/39038795/164950205-11b1e1d9-3870-4746-a384-e5af1bc41ca7.gif)
 
 <!--
 **getpos/getpos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- skeleton!!
+- dinner!!
+- yahooz??
+- foreneral and ever!!
+
 -->
