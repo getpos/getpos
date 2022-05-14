@@ -22,8 +22,6 @@ speak to me at zasqm#9905
 
 ![spidaa](https://user-images.githubusercontent.com/39038795/168421121-bb64b533-4381-45bf-840b-73ceb4d1765e.gif) ![spidaa](https://user-images.githubusercontent.com/39038795/168421121-bb64b533-4381-45bf-840b-73ceb4d1765e.gif)
 
-anyone know what this mean?? 
-
 ![HD I R I](https://github-readme-stats.vercel.app/api?username=getpos)
 
 anyone know what this mean and why it has my name on it?? 
